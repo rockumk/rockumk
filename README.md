@@ -1,4 +1,4 @@
-👋 Hi, I’m Rock Kennedy. On most sites I use the name rockum, but that was taken so here I am rockumk.
+👋 Hi, I’m Rock Kennedy. On most sites I use the name Rockum, but that was taken so here I am rockumk.
 
 
 👀 I’m interested in Music Technology.
